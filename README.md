@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Oscario222
+- 👀 I’m interested in coding & optimizing
